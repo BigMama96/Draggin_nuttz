@@ -7,7 +7,7 @@
 
 ## Early Life
 
-Goku was sent to Earth as a baby from the planet **[Vegeta](Vegeta/vegeta.md)**, where he was raised by **Grandpa Gohan**. After a head injury, he lost his original mission to conquer Earth and instead grew up as a kind-hearted, carefree child. His love for fighting and adventure set him on a path that would change the universe forever.
+Goku was sent to Earth as a baby from the planet **[Vegeta](vegeta.md)**, where he was raised by **Grandpa Gohan**. After a head injury, he lost his original mission to conquer Earth and instead grew up as a kind-hearted, carefree child. His love for fighting and adventure set him on a path that would change the universe forever.
 
 ## The Martial Arts Journey
 
