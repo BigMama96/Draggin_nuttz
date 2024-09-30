@@ -42,5 +42,5 @@ Goku’s transformation into **Ultra Instinct**, a state of heightened reflexes 
 
 ---
 
-### Back to **[Main](DBZkids/mainfile.md)**
+### Back to **[Main](mainfile.md)**
 
