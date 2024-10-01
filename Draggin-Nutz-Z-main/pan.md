@@ -32,7 +32,7 @@ In summary, Pan is not just Gohan and Videl's daughter; she is a symbol of hope 
 ![alt text](image-4.png)
 
 
-### Back to **[Main](DBZkids/mainfile.md)**
+### Back to **[Main](mainfile.md)**
 
 
 
