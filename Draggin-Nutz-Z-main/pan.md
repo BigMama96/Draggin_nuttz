@@ -4,7 +4,7 @@
 
 ## Early Life
 
-Born shortly after the defeat of **Majin Buu**, Pan was raised in a loving household where strength and intellect were valued. She shares a close bond with her grandfather, **Goku**, who inspires her to be strong and brave. From a young age, Pan showcases her potential, demonstrating impressive strength and agility.
+Born shortly after the defeat of **Majin Buu**, Pan was raised in a loving household where strength and intellect were valued. She shares a close bond with her grandfather, **[Goku](goku.md)**, who inspires her to be strong and brave. From a young age, Pan showcases her potential, demonstrating impressive strength and agility.
 
 ## A Young Fighter
 
