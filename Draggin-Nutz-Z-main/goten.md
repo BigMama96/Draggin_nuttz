@@ -1,7 +1,8 @@
 # Goten: The Young Saiyan
 
 **Goten** is the second son of **[Goku](goku.md)** and **Chi-Chi**, and he brings a youthful charm and playful spirit to the *Dragon Ball* universe. Born shortly after the defeat of Majin Buu, Goten is often seen as the more carefree sibling compared to his older brother, **[Gohan](gohan.md)**.
-![alt text](image.png)
+![goten](https://github.com/user-attachments/assets/5337c238-71a6-4529-9708-dd544fb6d6da)
+
 
 ## Early Life
 
