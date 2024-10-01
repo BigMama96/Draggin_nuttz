@@ -17,7 +17,7 @@ Whether you've already read about the kids through our other pages, or you're lo
 - **Notable Feats:** None
 
 
-![Image](BRA.jpg)
+![BRA](https://github.com/user-attachments/assets/4d96f458-b3bd-4401-b6f6-7fe80c9d490a)
 ##
 ### 2. **Pan**🦸‍♀️
 
