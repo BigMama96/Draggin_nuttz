@@ -45,5 +45,5 @@ Vegeta possesses a variety of powerful abilities, including:
 
 ##
 
-### Back to **[Main](DBZkids/mainfile.md)**
+### Back to **[Main](mainfile.md)**
 
