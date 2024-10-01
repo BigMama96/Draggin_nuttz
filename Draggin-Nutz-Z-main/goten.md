@@ -28,7 +28,7 @@ One of Goten's most exciting aspects is his ability to perform the **Fusion Danc
 ![alt text](image-6.png)
 
 
-### Back to **[Main](DBZkids/mainfile.md)**
+### Back to **[Main](mainfile.md)**
 
 
 
