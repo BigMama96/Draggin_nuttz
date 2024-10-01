@@ -60,4 +60,4 @@ Each kid in Dragon Ball has some sort of potential, and this is all about not on
 - Dragon Ball Super
 - Dragon Ball Super : Super Hero
 
-### Back to **[Main](DBZkids/mainfile.md)**
+### Back to **[Main](mainfile.md)**
