@@ -35,11 +35,11 @@ Trunks possesses several impressive abilities for his age, including:
 
 ## Relationships
 
-- ### **[Goten](goku/goten.md)** his best friend 
+- ### **[Goten](goten.md)** his best friend 
 - ### **[Vegeta](vegeta.md)** his dad
 - ### **[Bra/Bulla](bra.md)** his younger sister
 
 
 ##
 
-### Back to **[Main](DBZkids/mainfile.md)**
+### Back to **[Main](mainfile.md)**
