@@ -1,4 +1,4 @@
-# Gohan: The Scholar Warrior
+# Gohan: Destroyer of Cell
 ![alt text](image-2.png)
   
   
