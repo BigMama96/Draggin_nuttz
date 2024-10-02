@@ -1,4 +1,4 @@
-# Goku: The Legendary Saiyan
+# Goku
 ![alt text](image-7.png)
 
 
