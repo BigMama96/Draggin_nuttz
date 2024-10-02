@@ -1,4 +1,4 @@
-# Pan: The Spirited Warrior
+# Pan: The Future Warrior
 ![alt text](image-5.png)
 **Pan** is the daughter of **[Gohan](gohan.md)** and **Videl**, and she represents the new generation of warriors in the *Dragon Ball* universe. With a mix of Saiyan blood and strong human spirit, Pan is poised to become a formidable fighter while also embracing her adventurous nature.
 
