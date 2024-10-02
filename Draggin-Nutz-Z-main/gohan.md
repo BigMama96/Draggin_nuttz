@@ -12,7 +12,7 @@ From a young age, Gohan exhibited remarkable strength and abilities, but he ofte
 
 Gohan’s transformation during the Cell Games not only saved the Earth but also showcased his inner strength and determination. However, after this peak moment, he shifted his focus toward academics, becoming a scholar and later earning a Ph.D.
 
- ![Image](gohan fights frz.webp)
+
 ## Legacy
 
 Despite his more peaceful life, Gohan is always ready to defend his loved ones. His dual identity as a scholar and a warrior makes him a compelling character, balancing intellect with incredible power.
